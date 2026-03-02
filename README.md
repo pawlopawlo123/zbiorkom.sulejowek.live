@@ -1,1 +1,0 @@
-# zbiorkom.sulejowek.live
